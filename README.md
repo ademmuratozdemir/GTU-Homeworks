@@ -1,2 +1,0 @@
-# GTU-Homeworks
-# GTU-Homeworks
